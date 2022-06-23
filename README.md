@@ -1,3 +1,3 @@
 👋 Hi, I'm Mike.  
-🎓 Swansea university graduate (2022).  
+🎓 BSc Software Engineer.  
 👁 I’m looking to collaborate on projects that will help me to improve my skills.  
